@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lpzzjkjq
 - 👀 I’m interested in coding, designing and editing.
 - 🌱 I’m currently learning coding...
-- 💞️ I’m looking to collaborate on Pinterest is a massive dream.
+- 💞️ I’m looking to collaborate on videogames.
 - 📫 How to reach me discord : Lpzzjkjq#9998
 
 <!---
